@@ -27,7 +27,7 @@ Here are some of my favorite quotes from the series:
 
 > If you want a deepdive on the entire series. 
 > I would recommend you to watch this video by *Schaffrillas Productions*
-> <a href="http://www.youtube.com/watch?feature=player_embedded&v=3QNtdGYedQ4
+<a href="http://www.youtube.com/watch?feature=player_embedded&v=3QNtdGYedQ4
 " target="_blank"><img src="http://img.youtube.com/vi/3QNtdGYedQ4/0.jpg" 
 alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
 
