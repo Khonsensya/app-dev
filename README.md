@@ -9,8 +9,11 @@ Bojack Horseman is a very *complex* protagonist. He isn't someone you root for l
 
 Here are some of my favorite quotes from the series:
 > It gets easier. Every day it gets a little easier. But you gotta do it every day —that’s the hard part. But it does get easier
+
 > When you look at someone with rose colored glasses all of the red flags just seem like flags
+
 > Not understanding that you’re a horrible person doesn’t make you less of a horrible person.
+
 > It’s never too late to be the person you want to be. You need to choose the life you want.
 
 If you want to find more about Bojack Horseman. [Click here](https://www.imdb.com/title/tt3398228/)
